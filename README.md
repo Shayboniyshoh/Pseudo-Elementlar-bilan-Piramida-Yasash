@@ -1,0 +1,1 @@
+# Pseudo-Elementlar-bilan-Piramida-Yasash
